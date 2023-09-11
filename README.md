@@ -4,7 +4,7 @@
 
 🎒. I'm currently learning data analysis.
 
-👯. I'm looking to collaborate with other data analyst to work on projects.
+👩‍💻. I'm looking to collaborate with other data analyst to work on projects.
 
 ⚡. I love reading, travelling, watching animé😅
 
