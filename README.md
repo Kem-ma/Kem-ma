@@ -6,7 +6,7 @@
 
 👩‍💻. I'm looking to collaborate with other data analyst to work on projects.
 
-⚡. I love reading, travelling and watching animé😅
+⚡. I love reading📚 , travelling🧳 and watching animé📺
 
 📫. You can reach me at keukang562@gmail.com
 
