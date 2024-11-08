@@ -1,11 +1,6 @@
-## Hi there 👋
 
 
-### I'm a tech fanatic.
 
-- 🔭   I'm currently learning computer engineering.
-- ☘️🍀 Looking to display some of my recent acquisition.
-- 🙃   See ya
 
 <!--
 **Kem-ma/Kem-ma** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
