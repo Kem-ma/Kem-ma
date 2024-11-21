@@ -1,4 +1,8 @@
+## Hello, I'm Keukang Carmen, a Computer engineering student.
+#### I'll love to start uploading some of my projects I'm working on, here and would love lotta collaboration and reviews(issues)
 
+- 📚 I'm currently a student.
+  
 
 
 
